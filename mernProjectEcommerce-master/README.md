@@ -34,5 +34,5 @@ _fill each filed with your info respectively_
 
 ## Author
 
-**LinkedIn** Click [Here](https://www.linkedin.com/in/shivam-shrivastav26) **@meAbhiSingh**
+**LinkedIn** Click [Here](https://www.linkedin.com/in/shivam-shrivastav26) **@ShivamShrivastav**
 
